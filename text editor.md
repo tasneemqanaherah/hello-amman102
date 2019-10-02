@@ -1,4 +1,4 @@
-3
+
 Today, people and organizations of all walks of life manage blogs to share analyses, instruction, criticisms, 
 and other observations of an industry in which they are a rising expert.
 With all this blogging how-to, literally anyone can blog as long as they truly know the subject matter they’re writing about.
